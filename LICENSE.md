@@ -1,4 +1,4 @@
-# 
+# updated Cubase for PC | Cubase for Windows Template | plugin-management + MIDI-editing is the best Cubase for PC | Cubase for Windows template, featuring plugin-management and
 
 
 
